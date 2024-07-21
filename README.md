@@ -1,1 +1,1 @@
-![20240619_225704](https://github.com/alnsttill/alnsttill/assets/132313328/f13eae21-5a29-49bd-84b4-2dad87ea8b2e)
+![IMG_20240706_014528](https://github.com/user-attachments/assets/be95b7e4-8cc5-404a-8cca-be49a6a26752)
